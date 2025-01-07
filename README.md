@@ -1,1 +1,5 @@
-# MyStudent
+# MyStudent![0131a9bd-a6b2-4eec-8e19-ae93e96812cd](https://github.com/user-attachments/assets/23bd3c5f-7cb5-4dbe-a2ae-743da6f572b5)
+![559dafbb-118c-4e01-bc4e-cd32cb1b1b6e](https://github.com/user-attachments/assets/f3fded12-9808-4872-8959-0e5ade78b5d5)
+![fd9214b6-e76e-4475-90d2-b0ee03a4cb20](https://github.com/user-attachments/assets/4bdcf4d4-e516-4c87-ab8b-b6b062eddf48)
+![70e1d2a6-79b4-44fc-96e7-34e38968a612](https://github.com/user-attachments/assets/3addb7c5-7203-4dfe-bc76-ec3404f64c54)
+![ea994228-7aef-486a-a559-72b06f494ad8](https://github.com/user-attachments/assets/7f7d5b1d-3e52-4e2e-a70b-f9e5f304dc4e)
